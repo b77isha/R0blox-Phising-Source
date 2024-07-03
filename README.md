@@ -9,9 +9,9 @@
 - 🍪 **Get me 35 stars on this repo and i post a true login src**
 
 # extra
-- support server / buying server > https://discord.gg/Dt5pN3B2Xj
+- support server / buying server > https://discord.com/invite/U8mQJfh6Nm
 - if u want a custom src made for a cheap price just join the discord server.
 - can make any source code u want, Triplehook gen, Dualhook Gen, Regular Gen.
 
 # Contact me 
-- discord > termed_ggs
+- discord > b77isha
